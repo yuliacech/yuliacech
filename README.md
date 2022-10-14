@@ -1,4 +1,4 @@
-### Hi there, I'm Yulia
+### Hi there, I'm _Yulia_
 
 ### Welcome to my Github profile! 
 
